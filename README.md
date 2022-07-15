@@ -1,0 +1,2 @@
+# Gita
+SLOT_GACOR
